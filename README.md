@@ -11,3 +11,5 @@ Here is some information about who I am and what I do: I am currently a sophomor
 ## My Cricket Statistics
 
 [Click here to check out my cricket profile](https://cricclubs.com/NGYCA/user/9DdzGwm5EfXkV5CLsNdDBg?playerName=Sridheera+Banda)
+
+[Also here's another picture] (IMG-20260927-WA0000.jpg)
